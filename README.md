@@ -1,1 +1,1 @@
-# Dinesh-Devitha-Wedding
+# Dinesh Kumar-Devitha-Wedding
